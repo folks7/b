@@ -1,3 +1,5 @@
+#  <a href="https://9233betebet.com/">www.betebet.com</a>
+#  <a href="https://9233betebet.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
 # Betebet Güncel Giriş 2025 | Yeni Adres Bilgilendirme Sayfası
 
 Betebet güncel giriş adresi 2025 itibarıyla erişime açıldı. Yeni bağlantı bilgileri ve hızlı yönlendirme detayları burada.
