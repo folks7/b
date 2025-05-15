@@ -22,7 +22,7 @@ Betebet güncel giriş adresi 2025 itibarıyla erişime açıldı. Yeni bağlant
 ## 🔄 En Son Güncelleme
 
 > 📅 **Tarih:** Mayıs 2025  
-> 🌍 **Yeni Adres:** [https://betebet.net](https://google.com)
+> 🌍 **Yeni Adres:** [https://google.com](https://google.com)
 
 ---
 
